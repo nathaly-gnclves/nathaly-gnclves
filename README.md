@@ -1,5 +1,6 @@
 - SOBRE MIM 
 - 👀 Ola meu nome e NATHALY B.GONÇALVES
-- insta; nathaly_gnclves
+- ✨ insta; nathaly_gnclves
 - 💞️ Eu estou interessada em aprender novas programaçaoes de linguagem 
 - 📫 E eu estou aprendendo a programar recentemente linguagem de lavascript e scratch
+- 🌃 Moro em Curitiba,pr
